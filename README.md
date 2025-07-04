@@ -1,7 +1,11 @@
 - 👋 Hi, I’m Prem Kumar Kale
-- 👀 I’m interested in diving in new concepts
-- 🌱 Currently Pursuing B Tech in IT in CEG Anna Universit, Chennai, Tamil Nadu
-- 💞️ I’m looking to collaborate on mutual Learning 
-- 📫 How to reach me-----Instagram, X : @thee_premm
+- 🧭 I live by discipline — not as a routine, but as a roadmap to purpose  
+- 📚 A lifelong learner who believes depth matters more than speed  
+- 🌱 Pursuing B.Tech in Information Technology at CEG, Anna University, Chennai, Tamil Nadu  
+- 💬 I value clear communication, mindful effort, and consistency over chaos  
+- 🔁 Growth, to me, is a loop — of reflection, correction, and execution  
+- 🧠 I respect intelligence, but admire integrity more  
+- 🛡️ I take pride in showing up even when it's hard — especially then  
+- 📫 You can find me on Instagram / X: [@thee_premm](https://instagram.com/thee_premm)  
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Life is Fun until we know the that it is not
