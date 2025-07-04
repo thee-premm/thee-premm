@@ -6,6 +6,6 @@
 - 🔁 Growth, to me, is a loop — of reflection, correction, and execution  
 - 🧠 I respect intelligence, but admire integrity more  
 - 🛡️ I take pride in showing up even when it's hard — especially then  
-- 📫 You can find me on Instagram / X: [@thee_premm](https://instagram.com/thee_premm)  
+- 📫 Feel free to reach out for collaborations, conversations, or shared learning , Email: premm.000000@gmail.com 
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Life is Fun until we know the that it is not
